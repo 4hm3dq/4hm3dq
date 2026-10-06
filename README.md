@@ -94,6 +94,6 @@ Shift Manager / Responsible Person at **Greggs**: coordinating teams, handling e
 
 ## 📫 Connect With Me
 
-- [LinkedIn](www.linkedin.com/in/ahmedqadoura-1b59b3409)
+[linked in] (https://www.linkedin.com/in/ahmed-qadoura-1b59b3409?jobid=1234&lipi=urn%3Ali%3Apage%3Ad_jobs_easyapply_pdfgenresume%3BD%2BX7NeZ7RIWUrfsZA%2B13dg%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_jobs_easyapply_pdfgenresume-v02_profile)
 
 I'm always happy to connect with software engineers, AI/ML professionals, recruiters and anyone working on interesting projects.
